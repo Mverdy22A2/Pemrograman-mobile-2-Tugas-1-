@@ -1,2 +1,1 @@
-# Pemrograman-mobile-2-Tugas-1-
-Pemrograman mobile 2 Tugas 1
+# Tugas masih dalam proses pengerjaan 
